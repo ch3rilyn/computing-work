@@ -1,5 +1,5 @@
-# This was most definitely not our main plan. 
-We initially thought that we had it under our control but it ended up snowballing into a large mess. Commotion arose around me while I stood there, 
+# Plan 
+This was msot definitely not our main plan. We initially thought that we had it under our control but it ended up snowballing into a large mess. Commotion arose around me while I stood there, 
 desperately pondering for an idea to come to my head. Some people were having shouting matches and even started throwing our brown beer bottles at each other that we had used to
 store the precious clear water that we collected from the wells in our village. At every bottle broken, my emotions were like the shattered glass pieces that reflected
 into a thousand different colours under the sun, rolling about in me. Those bottles were the last memory we had of our village before it was burned to the ground by our rivals.
